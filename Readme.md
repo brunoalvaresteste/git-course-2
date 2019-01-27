@@ -2,3 +2,5 @@ GITHUB PARA INICIANTES
 BRUNO ALVARES DE MIRANDA
 
 email: bruno.alvares@loggi.com
+
+SÃO PAULO - SP
